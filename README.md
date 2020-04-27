@@ -2,3 +2,5 @@
 I am Soo Min Lee from **Group1**.
 I am YEJIN.
 I am YEJIN..
+I'm sihoon from group 1
+
